@@ -17,6 +17,7 @@
 - finger style cover: https://youtu.be/WkZNchiIPdg
 
 <br/>
+
 ## Kralj ponoci
 - akodri i tekst: https://www.yesiloveguitar.com/akordi/a/ana-bekuta/ana-bekuta-kralj-ponoci
 - akordi i tekst: http://www.pesmarica.rs/Akordi/2282/Ana-Bekuta--Kralj-ponoci
